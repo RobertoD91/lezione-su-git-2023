@@ -2,9 +2,41 @@
 
 lezione sui fork, gli studenti della cyberhackademy 2023 sono (potete usare anche un nickname):
 
-Chuck Norris
-Il bicipite di Emanuele
-Batman
+- Peppone
+- Stefano 
+- Chuck Norris
+- Il bicipite di Emanuele
+- Batman
+- Maria
+- Acqua Orsini
+- Lorenzo
+- Umberto
+- i'm the king
+- Dopo tanta fatica, qualcosa ho capito
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+
+
 
 i mentor sono:
 - Roberto
